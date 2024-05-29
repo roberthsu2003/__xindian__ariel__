@@ -11,3 +11,7 @@
 ---
 
 [2024_05_23](https://youtube.com/live/xRv-D0m8FsM)
+
+---
+
+[2024_05_29](https://youtube.com/live/hGaKQzDOKl8)
