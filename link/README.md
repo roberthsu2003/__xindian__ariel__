@@ -19,3 +19,7 @@
 ---
 
 [2024_05_30](https://youtube.com/live/-poUDKyDDD4)
+
+---
+
+[2024_05_31](https://youtube.com/live/mezLSrtZ6cc)
