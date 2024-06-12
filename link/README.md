@@ -33,3 +33,5 @@
 [2024_06_10](https://youtube.com/live/ZupEbMdSoyA)
 
 ---
+
+[2024_06_12](https://youtube.com/live/_zg6RHi4yK0)
