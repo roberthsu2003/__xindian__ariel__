@@ -39,3 +39,7 @@
 ---
 
 [2024_06_21](https://youtube.com/live/1BfFzVDaFVU)
+
+---
+
+[2024_07_30](https://youtube.com/live/J4hT5mCosjw)
