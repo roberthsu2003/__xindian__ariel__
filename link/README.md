@@ -43,3 +43,6 @@
 ---
 
 [2024_07_30](https://youtube.com/live/J4hT5mCosjw)
+
+
+[2024_08_06](https://youtube.com/live/GakO_g65aKo)
