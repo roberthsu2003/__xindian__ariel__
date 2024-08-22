@@ -46,3 +46,6 @@
 
 
 [2024_08_06](https://youtube.com/live/GakO_g65aKo)
+
+
+[2024_08_22](https://youtube.com/live/ioWppk44T98)
